@@ -1,1 +1,1 @@
-# Ampas_Dark_System.dh0f-w5c
+Github Ini Telah Diawasi Oleh Dark System Jika Ingin Melepas Nya Maka Join Ch @yatimitu123
